@@ -1,0 +1,2 @@
+# partnerships
+Global Partnerships team
